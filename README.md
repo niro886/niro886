@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi !  I'm Nirodya !
+Hi !  I'm Niro !
 
 
 ## 🌐 Socials:
